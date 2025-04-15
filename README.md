@@ -1,1 +1,7 @@
-# -
+# -Task 1![1](https://github.com/user-attachments/assets/ec078603-2f5f-4edd-ab07-9e8155dbfb0c)
+![2](https://github.com/user-attachments/assets/ca36d991-1a3c-41a3-aca1-b0ecd305fd8d)
+![3](https://github.com/user-attachments/assets/bef50d89-4033-4e3f-920c-c33d1bcafaba)
+![4](https://github.com/user-attachments/assets/1b0879df-e5b6-4a55-8d98-2cff5259cb35)
+![5](https://github.com/user-attachments/assets/4453976e-4a5d-4f72-95da-503a12821223)
+![6](https://github.com/user-attachments/assets/7b4db034-b60a-4f45-ad41-a10940a65a8a)
+![8](https://github.com/user-attachments/assets/8b6fc0cb-4492-421c-b1f5-d5ce66fef774)
